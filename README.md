@@ -8,3 +8,7 @@
 ![ThirdDuck](3.jpg)
 
 ![FourthDuck](4.jpg)
+
+---
+
+Made by curious by 🌆 NISY
